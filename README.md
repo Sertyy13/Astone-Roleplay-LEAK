@@ -1,2 +1,3 @@
 # Astone-Roleplay-LEAK
-Je donnes cette base.
+JE LEAK LA BASE DE SOW parce-que c'est un ramdom qui ddos sertyy
+
